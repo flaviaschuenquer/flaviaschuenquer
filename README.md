@@ -1,7 +1,4 @@
-### Hi there 👋
-
-<!--
-**flaviaschuenquer/flaviaschuenquer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👋
 
 ## Oi, pessoal :v:
 Me chamo Flávia Regina Schuenquer Santos. Mas pode me chamar de  Flávia Schuenquer :blush: 
