@@ -1,7 +1,7 @@
 
 
-## Oi, pessoal :v:
-<br/>Me chamo Flávia Regina Schuenquer Santos. Mas pode me chamar de  Flávia Schuenquer :blush: 
+## Oi :v:
+ 
 <br/>Sempre trabalhei na área de vendas e supervisão, mas sempre curti tecnologia :computer:
 <br/>Agora resolvi me desafiar entrando de cabeça nesse mundo tão maravilhoso e que já estou apaixonada :heart_eyes:
 <br/>Estou me dedicando a vários cursos e percebo que já evolui muito :dancer:
