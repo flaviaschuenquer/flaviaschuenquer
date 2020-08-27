@@ -1,14 +1,12 @@
 
 
-## Oi :v:
+## AGORA É MELHOR QUE NUNCA! :v:
  
-<br/>Sempre trabalhei na área de vendas e supervisão, mas sempre curti tecnologia :computer:
-<br/>Agora resolvi me desafiar entrando de cabeça nesse mundo tão maravilhoso e que já estou apaixonada :heart_eyes:
-<br/>Estou me dedicando a vários cursos e percebo que já evolui muito :dancer:
-<br/>Faço faculdade de Análise e Desenvolvimento de Sistemas, participei de um Hackathon e já estou finalizando o curso de JS, HTML e CSS.:punch: 
-<br/>Quero me aprofundar muito mais para aprender e poder ajudar os outros.:purple_heart: 
-<br/>Estou me dedicando para ser uma desenvolvedora FullStak!:raised_hands:
-<br/>Nas horas vagas, amo leitura, sou cinéfila, curto fazer trilhas e praias :sun_with_face:
+<br/>Sempre trabalhei na área de vendas e supervisão, mas também sempre curti tecnologia :computer:
+<br/>Estou me desafiando e entrei de cabeça nesse mundo tão maravilhoso e apaixonante da tecnologia:heart_eyes:
+<br/>Faço faculdade de Análise e Desenvolvimento de Sistemas e focada em JAVASCRIPT e PYTHON.:punch: 
+<br/>:purple_heart: 
+<br/>Vou ser uma desenvolvedora FullStak!:raised_hands:, mas nunca esqueço de descansar a mente, lendo um livro, indo ao cinema, trilhando e indo a praia. :sun_with_face:
 
 <br/>💬 Segue meu linkedin: www.linkedin.com/in/flávia-schuenquer-57a5b3154 
 <br/>👋 Email: flavia_schuenquer@hotmail.com
