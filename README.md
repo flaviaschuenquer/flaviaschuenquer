@@ -1,6 +1,6 @@
 
 
-## AGORA É MELHOR QUE NUNCA! :v:
+## Hi, Welcome 👋 to my profile! :v: 
  
 <br/>Experiência em vendas e gestão de pessoas, e apaixonada por tecnologia :computer:
 <br/>Amo desafios e entrei de cabeça nesse mundo tão maravilhoso e apaixonante da tecnologia:heart_eyes:
